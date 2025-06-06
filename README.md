@@ -1,0 +1,2 @@
+# suzega
+Acceptable policy
